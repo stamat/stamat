@@ -1,3 +1,5 @@
+![Super Stamat Bro.](https://i.imgur.com/P9j9QyD.png)
+
 ### Hi there 👋
 
 <!--
