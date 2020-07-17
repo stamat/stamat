@@ -1,4 +1,4 @@
-![Super Stamat Bro.](https://i.imgur.com/Wnxgk89.png)
+![Super Stamat Bro.](https://i.imgur.com/vIO8R5y.png)
 
 <!--
 ### Hi there 👋
